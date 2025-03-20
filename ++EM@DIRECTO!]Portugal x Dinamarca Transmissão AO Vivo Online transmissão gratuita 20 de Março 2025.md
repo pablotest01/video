@@ -2,6 +2,12 @@
 
 Dinamarca x Portugal: Onde assistir ao vivo ao jogo da Liga das Nações
 
+[🔴➤ Assistir ►🌍📺📱👉Liga das Nações 2024-25 Live](https://awesomesalatv.blogspot.com/2025/03/france-vs-crotia.html)
+
+[🔴➤ Assistir ►🌍📺📱👉Portugal x Dinamarca Ao Vivo](https://awesomesalatv.blogspot.com/2025/03/france-vs-crotia.html)
+
+[🔴➤ Assistir ►🌍📺📱👉Liga das Nações 2024-25 Live](https://awesomesalatv.blogspot.com/2025/03/france-vs-crotia.html)
+
 Confira também a escalação das equipes e o horário da partida
 
 
