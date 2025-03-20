@@ -5,9 +5,7 @@ Dinamarca x Portugal: Onde assistir ao vivo ao jogo da Liga das Nações
 Confira também a escalação das equipes e o horário da partida
 
 
-
-Transmissão ao vivo de Dinamarca x Portugal: veja onde assistir… - Veja mais em https://www.uol.com.br/esporte/ultimas-noticias/2025/03/20/transmissao-ao-vivo-de-dinamarca-x-portugal-veja-onde-assistir.htm?cmpid=copiaecola
-
+Transmissão ao vivo de Dinamarca x Portugal: veja onde assistir… - Veja mais em
 
 
 Em jogo válido pelas quartas de final da Liga das Nações, Dinamarca e Portugal começam a decidir nesta quinta-feira (20) uma vaga às semifinais do torneio continental. Os portugueses, além de buscarem o bi da competição, defendem uma invencibilidade de oito partidas. O time de Christian Eriksen é visto como azarão, mas quer surpreender e avançar rumo à conquista inédita.
