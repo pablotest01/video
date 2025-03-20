@@ -2,6 +2,12 @@
 
 サッカー男子日本代表vsバーレーン代表丨放送予定一覧！テレビ・ネット中継・ライブ配信／FIFAワールドカップ・アジア最終予選
 
+[🅻🅸🆅🅴🔴▶️ 日本対バーレーン ライブ放送](https://awesomesalatv.blogspot.com/2025/03/japan-vs-bahrain.html)
+
+
+[🅻🅸🆅🅴🔴▶️日本対バーレーン ライブ放送](https://awesomesalatv.blogspot.com/2025/03/japan-vs-bahrain.html)
+
+[🅻🅸🆅🅴🔴▶️日本対バーレーン ライブ放送](https://awesomesalatv.blogspot.com/2025/03/japan-vs-bahrain.html)
 
 
 サッカー日本代表・SAMURAI BLUEは3月20日、FIFAワールドカップアジア最終予選でバーレーン代表と対戦。同試合の放送予定を紹介する。 サッカー日本代表・SAMURAI BLUEは3月20日、FIFAワールドカップ26アジア最終予選（3次予選）の第7戦でバーレーン代表と対戦する。
