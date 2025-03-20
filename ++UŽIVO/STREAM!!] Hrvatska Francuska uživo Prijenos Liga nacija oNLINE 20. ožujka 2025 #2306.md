@@ -2,6 +2,12 @@
 
 Zadnje ažuriranje: četvrtak, 20. ožujka 2025
 
+[🔴LIVE📺📱👉https://Hrvatska-Francuska-Uživo/](https://awesomesalatv.blogspot.com/2025/03/france-vs-crotia.html)
+
+[🔴LIVE📺📱👉https://Hrvatska-Francuska-Uživo/](https://awesomesalatv.blogspot.com/2025/03/france-vs-crotia.html)
+
+[🔴LIVE📺📱👉https://Hrvatska-Francuska-Uživo/](https://awesomesalatv.blogspot.com/2025/03/france-vs-crotia.html)
+
 Gdje gledati Hrvatska – Francuska, Uživo prijenos Lige nacija?
 
 Hrvatska nogometna reprezentacija u prvoj utakmici četvrtfinala Lige nacija na Poljudu dočekuje Francusku. Izabranici Zlatka Dalića aktualni su viceprvaci natjecanja, ali s druge strane nalazi se momčad koja nam je zadala možda i najbolniji poraz u sportskoj povijesti Lijepe naše.
